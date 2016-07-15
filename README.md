@@ -26,7 +26,7 @@
 
 >Chameleon Run is a unique, fast and challenging autorunner with a colorful twist. Jump, switch and run through expertly crafted levels that will have you running back for more.
 
-[Lara Croft Go - $4.99](https://itunes.apple.com/us/app/chameleon-run/id1084860489)
+[Lara Croft Go - $4.99](https://itunes.apple.com/us/app/lara-croft-go/id971304016?mt=8)
 
 >Lara Croft GO is a turn based puzzle-adventure set in a long-forgotten world. Explore the ruins of an ancient civilization, discover well-kept secrets and face deadly challenges as you uncover the myth of the Queen of Venom.
 
